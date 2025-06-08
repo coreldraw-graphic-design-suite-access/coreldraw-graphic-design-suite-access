@@ -1,0 +1,1 @@
+# coreldraw-graphic-design-suite-access
